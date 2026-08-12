@@ -1,6 +1,6 @@
 ### *Mist* for guitar ensemble (2011)
 
-Original composition for guitar ensemble, recorded by the New York City Guitar Orchestra and released by New Focus Recordings on *Spectra* (2024).
+Original composition for guitar ensemble, commissioned and recorded by the New York City Guitar Orchestra. Released by New Focus Recordings on *Spectra* (2024).
 
 [Listen on Bandcamp](https://newfocusrecordings.bandcamp.com/track/takuma-tanikawa-mist)
 
